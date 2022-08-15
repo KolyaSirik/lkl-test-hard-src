@@ -1,1 +1,0 @@
-# lkl-test-hard-src
